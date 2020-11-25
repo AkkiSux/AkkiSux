@@ -1,1 +1,1 @@
-![Header](https://akki.vip/images/capture.png)
+![Header](https://akki.vip/images/Capture.png)
